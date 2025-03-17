@@ -1,4 +1,1 @@
-Vulnerability Researcher | Penetration Tester | Bug Bounty Hunter  | Hacker 👥 🎭  | 
-@Hacker0x01
- 
-https://infiltrateinsight.blogspot.com
+Offensive Security | Lead Penetration Tester | Bug Bounty Hunter | Hacker | OSINT Researcher
